@@ -1,2 +1,0 @@
-Paris Guo
-Blackhawk
